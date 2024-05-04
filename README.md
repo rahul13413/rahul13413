@@ -33,6 +33,8 @@ I am a versatilist and easily adapt to different hats (Full Stack Web Developer 
 - 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1uXO1Mvo_7JYV4Z_445fYQuxkHX-SEzAw/view?usp=sharing)
 
 <br/>
+<br/>
+<br/>
 
 
 
